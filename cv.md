@@ -4,7 +4,7 @@
 Sandra Zenova
 
 ### Contact Info:
-* phone + telegram and viber: +375293958110
+* phone: +375293958110 (You can use Telegram, Viber, WhatsApp)
 * e-mail: alexazenova@gmail.com
 * linkedin: [my account](linkedin.com/in/sandrazenova)
 
